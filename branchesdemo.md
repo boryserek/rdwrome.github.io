@@ -13,7 +13,7 @@
 ## Tryfonas
 
 ## Uzieblo
-### OOWEE OOWEE :O
+### OOWEE OOWEE :0
 ## Weir
 
 ## Wray
